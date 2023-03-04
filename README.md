@@ -1,0 +1,1 @@
+# MintChip Assets
